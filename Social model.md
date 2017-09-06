@@ -4,9 +4,11 @@ Nearby the famous Terra-Cotta Warriors, there are many ancient royal palace
 ruins. South to Mountain Li and north to Wei River, this area boasts the natural hot
 springs. And also it is close to the ancient capital Xi’an, many emperors of dynasties
 had built resorts here, the Huaqing Palace is the most spectacular one among them.
+
 在著名的兵马俑附近，有许多古老的皇宫遗址。南依骊山，北临渭河，这
 个地区以天然温泉而闻名。由于毗邻古都长安，许多帝王在这里兴建了行宫别苑，
 华清宫是其中最壮观的一个。
+
 Huaqing Palace was built in A.D. 747 ordered by Emperor Xuanzong, who is the
 seventh emperor of Tang dynasty, the core regions are the imperial baths group.
 Nowadays, the royal palace has been rebuilt on the basis of the site and the royal
