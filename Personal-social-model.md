@@ -1,6 +1,8 @@
 # Huaqing
 
 
-We need build a social model that we know well !
+We need to build a social model that we know well!
 
-let us make the society efficient !
+The participants can model their relationship and the society.
+
+Let us make the society efficient!
