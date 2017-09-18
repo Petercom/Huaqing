@@ -1,5 +1,5 @@
 The Advanced Theory of Social Organism: The Ancient Wisdom of Five Chinese Imperial Baths
-by Peter He 
+(by Peter He) 
 
 https://www.amazon.com/Advanced-Theory-Social-Organism-Imperial/dp/1520372523/ref=sr_1_sc_2?ie=UTF8&qid=1505718641&sr=8-2-spell&keywords=social+oganism+peter
 
